@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Mohammed Hamid
+- 👋 Hi, I’m Mohammed Al-Obaidi
 - 👀 I’m interested in Playing Games
 - 🌱 I’m currently learning How to be a successful person
 <!---
